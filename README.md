@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **sidhantgarg455@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
+- ⚡ Status **Available for contributions**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
